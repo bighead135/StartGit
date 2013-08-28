@@ -1,3 +1,4 @@
-﻿sua doi noi dung readme.txt
-sdkfnjkljsdfkljalksd
-khi dasdkj;lk;lkdlkds;lfsdfsdfsdfsdfdsfsdk;lsadkl;ákdds
+ngày đầu tiên đi học
+mẹ dắt em đến trường,
+em vừa đi vừa khóc,
+mẹ dỗ dành yêu thương
